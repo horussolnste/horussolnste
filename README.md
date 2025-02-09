@@ -5,7 +5,7 @@
 
 •̩̩͙˚⁺‧. •̩̩͙˚⁺‧.˚ •̩̩͙ ✩. •̩̩͙˚⁺‧. •̩̩͙*˚⁺‧. ˚ •̩̩͙ ✩.
 
-⋆ˊˎ- Name: 007n7 / aseah / dongrang / sansón / ishmael / ahab / emerson / hubert / sancho / philip 
+⋆ˊˎ- Name: 007n7 / aseah / dongrang / sansón / ishmael / ahab / emerson / hubert / sancho / philip / telamon / john
 
 ⋆ˊˎ- Birthday: June 10th!!
 
