@@ -5,7 +5,7 @@
 
 •̩̩͙˚⁺‧. •̩̩͙˚⁺‧.˚ •̩̩͙ ✩. •̩̩͙˚⁺‧. •̩̩͙*˚⁺‧. ˚ •̩̩͙ ✩.
 
-⋆ˊˎ- Name: yoshihide / vagabond / dragon / aubree / sean / ace / zach / 007n7 / aseah / dongrang / sansón / ishmael / ahab / emerson / hubert / sancho / philip / telamon / john
+⋆ˊˎ- Name: phobos / yoshihide / vagabond / dragon / aubree / sean / ace / zach / 007n7 / aseah / dongrang / sansón / ishmael / ahab / emerson / hubert / sancho / philip / telamon / john
 
 ⋆ˊˎ- Birthday: June 10th!!
 
