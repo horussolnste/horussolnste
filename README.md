@@ -9,7 +9,7 @@
 
 ⋆ˊˎ- Birthday: June 10th!!
 
-⋆ˊˎ- Pronouns: he / it / xe
+⋆ˊˎ- Pronouns: she / it / xe
 
 ⋆ˊˎ- DNI: prosh*ppers, danganronpa fans (except i know you), z *onist
 
